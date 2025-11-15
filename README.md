@@ -1,2 +1,6 @@
 # -vpn-
-自己在用的超好用vpn，稳定，便宜
+点击网址
+https://www.ssone.uk/register?aff=cIDkbsIJ
+
+
+
